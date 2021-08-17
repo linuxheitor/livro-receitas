@@ -21,6 +21,6 @@
 
 - coloque para congelar :ice_cream:
 
-- após 2 horas coma e seja feliz :happy:
+- após 2 horas coma e seja feliz  :clap:
 
   
