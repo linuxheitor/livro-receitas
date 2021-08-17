@@ -10,3 +10,4 @@ Olá! Seja bem vindo ao livre de Receitas malucas :call_me_hand:
 
 - Bananada de banana
 
+- Strogonofius
