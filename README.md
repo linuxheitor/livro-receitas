@@ -6,12 +6,18 @@
 
   ### TODAS AS RECEITAS DESSE LIVRO SAO LEVES DELIRIOS CULINARIOS QUE SO EXISTEM NA MINHA MENTE/MURINGA/ SEILA COMO VC CHAMA ESSA PARTE DO CORPO NO SEU ESTADO :brazil:
 
-  ##### :mega::car: ATENÇÃO SE VC VISUALIZAR A IMAGEM DO PINGUIN , SIGNIFICA QUE ESSE REPOSITORIO ESTA SENDO ALIMENTO A CRITERIOS MEDIOCRES DE TESTE POR UM SISTEMA LINUX:blue_heart: caso contratio falhei miseravelmente.![](C:\Users\Heitor\Pictures\wllpaper\png-clipart-linux-logo-linux-installation-open-source-model-operating-system-unix-linux-logo-free-logo-design-template-text.png)
+  ##### :mega::car: ATENÇÃO SE VC VISUALIZAR A IMAGEM DO PINGUIN , SIGNIFICA QUE ESSE REPOSITORIO ESTA SENDO ALIMENTO A CRITERIOS MEDIOCRES DE TESTE POR UM SISTEMA LINUX:blue_heart: caso contratio falhei miseravelmente.
 
+  ### :penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin::penguin:
+
+  
+
+  
+  
   :blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart::blue_heart:
-
+  
   #### Receitas
-
+  
   - Bananada de banana
   - Strogonofius.
   - 
