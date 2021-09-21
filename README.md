@@ -2,7 +2,7 @@
 
   Olá! Seja bem vindo ao livre de Receitas malucas :call_me_hand:
 
-  # :mega:<u>ATENCÃO !!! lembrando que tudo que conter nesse repositorio é a criterios de ESTUDOS E APRENDIZADOS , EU APRENDO FAZENDO E FALABANDO BESTEIRAS PARA DE UMA FORMAR MINHA MENTE ASSOCIAR AS COISAS:game_die:</u> 
+  # :mega:<u>ATENCÃO !!! lembrando que tudo que conter nesse repositorio é a criterios de ESTUDOS E APRENDIZADOS , EU APRENDO FAZENDO E FALABANDO "BESTEIRAS" PARA ASSOCIAR AS INFORMAÇOES MAIS FACILMENTE:game_die:</u> 
 
   ### TODAS AS RECEITAS DESSE LIVRO SAO LEVES DELIRIOS CULINARIOS QUE SO EXISTEM NA MINHA MENTE/MURINGA/ SEILA COMO VC CHAMA ESSA PARTE DO CORPO NO SEU ESTADO :brazil:
 
